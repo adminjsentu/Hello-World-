@@ -8,7 +8,7 @@ The art and idea of coding is an impactful form of demonstration in todays time.
 
 Remember that as you undertake this journey you will begin to share,edit,create and update the ideas that exsist in your inner thoughts and hearts.
 
-This platform of coding will be a another plane you'll use to share with the world.
+This platform of coding will be a another plane you'll use to share those ideas with the world.
 
 Learn more.. Live more and Love more 
 
